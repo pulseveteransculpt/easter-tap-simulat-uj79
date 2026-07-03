@@ -1,4 +1,4 @@
-
+easter tap simulator vip Script offers the most advanced easter tap simulator Script, with one-hit kill and instant win. Perfect for dominating any
 
 
 
